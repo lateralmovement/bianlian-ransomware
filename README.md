@@ -1,5 +1,5 @@
 tox chat with bianlian ransomware  (deepmind) .
-screenshhhhots can be viewed also here - https://imgur.com/a/exf5k5N
+screenshots can be viewed also here - https://imgur.com/a/exf5k5N
 
 forum url: https://cracking.org/threads/bianlian-contact-us-for-cooperation.273366/ .
 forum member: deepmind1 .
